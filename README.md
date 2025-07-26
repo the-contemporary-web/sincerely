@@ -1,0 +1,3 @@
+Le terme contemporain, issu du latin cum 'avec' et tempus 'temps', désigne ce qui appartient à la même période temporelle que l'observateur, mais il transcende la simple simultanéité. En art, il qualifie ce qui est ancré dans le présent tout en participant activement à ses questionnements et transformations. Cela signifie une pratique qui, dialoguant avec le passé, s'engage résolument avec les préoccupations et les sensibilités actuelles de la société. Le caractère contemporain d'une œuvre réside ainsi dans sa capacité à être en phase avec son époque et à en définir le flux.
+
+Ceci constitue notre première démarche, manifestant notre inhérente contemporanéité.
